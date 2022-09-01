@@ -1,2 +1,2 @@
-Am becoming strong in linux
-doing the add things can be rough
+
+doing the hard things requires a lot of your time
