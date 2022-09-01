@@ -1,2 +1,2 @@
+am doing the hard things right now
 
-doing the hard things requires a lot of your time
